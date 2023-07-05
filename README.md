@@ -1,1 +1,1 @@
-# Pertemuan12
+# Pertemuan12 dan UAS
